@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Guillermo Azuara. I'm from Madrid, Spain. I hate programming but it makes me earn tons of money.
